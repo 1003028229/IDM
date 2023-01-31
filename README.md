@@ -1,5 +1,11 @@
 # IDM 6.41.6 (更新时间：2023/1/12)
 这里你可以下载到最新的IDM破解版!
+蓝奏云下载：
+最新免注册直接安装版：6.41.6
+下载地址： https://system32.lanzouy.com/iSym70i4iife
+密码：
+IDM
+
 ![F2A6DD28-4C2C-43b0-91CC-6F7713410C2A](https://www.imageoss.com/images/2022/11/28/6413926b33137b1403f4.png)
 
 此软件仅供学习研究，切勿用于一切商业用途！！！！！
